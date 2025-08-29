@@ -103,6 +103,8 @@ Ismael Moule
 Project: AI-based Hydroponic Tower
 
 Year: 2024
++33 745441588
+diakiteismael7434@gmail.com
 
 
 
